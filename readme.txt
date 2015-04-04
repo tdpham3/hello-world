@@ -1,0 +1,1 @@
+Time is a valuable resource. Spend it wisely.
